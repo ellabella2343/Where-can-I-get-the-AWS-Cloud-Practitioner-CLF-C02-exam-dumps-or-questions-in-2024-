@@ -16,4 +16,3 @@ Exam Language: English
 
 TO VISIT SITE >>> https://www.dumpsvibe.com/amazon/clf-c02-dumps.html
 
-#CLF-C02
